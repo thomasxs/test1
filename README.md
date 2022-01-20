@@ -1,6 +1,6 @@
 Free Vbucks Codes - Free Fortnite V-Bucks
 
-CLICK HERE >>> https://vbucks.topprofile24.site
+CLICK HERE >>> https://vbucks.topprofile24.site/
 
 2 minutes ago ago - Fortnite Free V Bucks Generator 2022: This game is so good and has a lot of exciting things in it. Fortnite games had a large audience and they maintained it by adding the updates for the best in the game. Fortnite Free V Bucks Generator is the currency used in the fortnite game. It’s a multiplayer royale game with amazing graphics. Through this you can get the stuff of the game.
 
